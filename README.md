@@ -1,1 +1,1 @@
-Give a pose for your selfie. Thank you !
+This URL can get you victim selfie. Enjoy !
